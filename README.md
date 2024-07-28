@@ -19,3 +19,6 @@ If anyone wants to contact me, my social media handles are as follows:
 
 [LinkedIn](https://www.linkedin.com/in/avjot-singh-b53605319?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 
+[Instagram](https://www.instagram.com/avjxt28?igsh=bnloOWInNDdyaGl1)
+
+Alternatively, you can reach me by email at avjot2006@gmail.com
