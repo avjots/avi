@@ -17,3 +17,5 @@ I recently enrolled in a course called 'Excel for Beginners' by Great Learning, 
 
 If anyone wants to contact me, my social media handles are as follows:
 
+[LinkedIn](https://www.linkedin.com/in/avjot-singh-b53605319?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
+
