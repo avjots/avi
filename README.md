@@ -11,9 +11,10 @@ My name is Avjot Singh Dhaliwal. I am from Bathinda, Punjab and I completed my t
 |Mathematics|53|
 |Physical Education|79|
 
-I recently enrolled in a course called 'Excel for Beginners' by Great Learning, which was recommended by my college. Through this course, I learned many new things about Excel. 
+I recently enrolled in a course called 'Excel for Beginners' by Great Learning, which was recommended by my college. Through this course, I learned many new things, as well as various tricks and tips about Excel. I also received a certificate for successfully completing the course, which is as follows:
 
 ![Avjot_Singh_Dhaliwal20240722-72-1lcoi1m](https://github.com/user-attachments/assets/c92019f9-b258-41ec-9f28-ccd8c6e61772)
+
 
 
 
