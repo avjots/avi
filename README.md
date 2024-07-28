@@ -15,6 +15,5 @@ I recently enrolled in a course called 'Excel for Beginners' by Great Learning, 
 
 ![Avjot_Singh_Dhaliwal20240722-72-1lcoi1m](https://github.com/user-attachments/assets/c92019f9-b258-41ec-9f28-ccd8c6e61772)
 
-
-
+If anyone wants to contact me, my social media handles are as follows:
 
