@@ -5,7 +5,11 @@ My name is Avjot Singh Dhaliwal. I am from Bathinda, Punjab and I completed my t
 
 |Subjects|Marks|
 |--------|-----|
-|English|x|
-|Maths|x|
+|English Core|74|
+|Physics|62|
+|Chemistry|79|
+|Mathematics|53|
+|Physical Education|79|
+
 
 [Click Here](https://google.com)
