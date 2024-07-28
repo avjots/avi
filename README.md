@@ -1,6 +1,7 @@
 # Portfolio:-
 My name is Avjot Singh Dhaliwal. I am from Bathinda, Punjab and I completed my twelfth class from Rose Mary Convent School, Balluana. I am currently pursuing a Bachelor of Technology degree in Electrical Engineering at Guru Nanak Dev Engineering College, Ludhiana.
-![Avjot_Singh_Dhaliwal20240722-72-1lcoi1m](https://github.com/user-attachments/assets/934e5fe0-d93c-4594-9cc3-cbe48c79d856)
+
+![IMG_20240316_152412(1)](https://github.com/user-attachments/assets/8168bce1-4412-4eb0-b976-d72f93d60dea)
 
 |Subjects|Marks|
 |--------|-----|
