@@ -22,3 +22,5 @@ If anyone wants to contact me, my social media handles are as follows:
 [Instagram](https://www.instagram.com/avjxt28?igsh=bnloOWInNDdyaGl1)
 
 Alternatively, you can reach me by email at avjot2006@gmail.com
+
+For reading my daily vlogs [click here](https://avjots.github.io/blogs/)
